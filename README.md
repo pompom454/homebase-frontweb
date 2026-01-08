@@ -1,2 +1,3 @@
 hello darkness my old friend...
 okay but seriously, i REALLY REALLY miss home base, rip 2019-2025 you will be missed by many artists
+considering this game is lost media from an accessibility standpoint, i think ill check my old hdd at some point. iirc it still has files from the long forgotten offline-capable builds.
